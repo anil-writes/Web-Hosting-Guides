@@ -4,7 +4,9 @@ If you’re planning to launch a website, blog, portfolio, or online store in 20
 
 In this article, we will break down **Hostinger offers** in a clear, friendly way so you see exactly what you get, how much you save, and how to claim each and every deal and discount, including **free perks like a domain and SSL**.
 
-Hostinger regularly runs big promotions every year and on various occasions, and here in this article, you can find the **verified discount codes** and promo codes that bring **Premium and Business hosting** down to rock-bottom prices. These deals work globally, including special pricing for India.
+Let’s explore the top Hostinger offers together.
+
+[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
 ---
 
