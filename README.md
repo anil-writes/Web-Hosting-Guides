@@ -150,13 +150,13 @@ Get **[10% off on new domain registrations](https://hostinger.in?REFERRALCODE=WE
 
  ## How to Claim the Hostinger Coupon Code for 2026?
  
-Redeeming a Hostinger coupon code is quick and straightforward, even if you’re buying hosting for the first time. Just follow these simple steps to make sure your discount is applied correctly:
+**Redeeming a Hostinger coupon code is quick** and straightforward, even if you’re buying hosting for the first time. Just follow these simple steps to make sure your discount is applied correctly:
  
  1. Start by visiting Hostinger’s **[official discount page](https://hostinger.in?REFERRALCODE=WEBPRO2025)** or click on the verified coupon links on this page (This ensures the offer is automatically applied).
- 2. Browse through the available plans and choose the one that fits your needs, whether it’s Shared Hosting, WordPress Hosting, Cloud Hosting, or VPS.  
- 3. Add your selected plan to the cart and proceed to checkout.
- 4. The Hostinger discount will be automatically applied if you use the verified **[direct discount link](https://hostinger.in?REFERRALCODE=WEBPRO2025)** from this page.
- 5. Complete your purchase and enjoy instant savings on your Hostinger hosting plan.
+ 2. Browse through the available plans and **choose the one that fits your needs**, whether it’s Shared Hosting, WordPress Hosting, Cloud Hosting, or VPS.  
+ 3. Add your selected plan to the cart and **proceed to checkout**.
+ 4. The Hostinger **discount will be automatically applied** if you use the verified **[direct discount link](https://hostinger.in?REFERRALCODE=WEBPRO2025)** from this page.
+ 5. Complete your purchase and **enjoy instant savings** on your Hostinger hosting plan.
 
 That’s it—no complicated steps or hidden conditions. Your discounted price will be visible before payment, so you can check everything with confidence before completing the checkout.
 
