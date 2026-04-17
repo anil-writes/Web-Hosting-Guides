@@ -6,14 +6,14 @@ In this article, we will break down **Hostinger offers** in a clear, friendly wa
 
 Let’s explore the top Hostinger offers together.
 
-[<img width="560" height="132" alt="Claim Hostinger Coupon Code" src="https://github.com/user-attachments/assets/3bc101f1-4dbe-4fae-b9aa-d30f708e3fdf" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
+[<img width="200" alt="Claim Hostinger Coupon Code" src="https://github.com/user-attachments/assets/3bc101f1-4dbe-4fae-b9aa-d30f708e3fdf" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
 
 ---
 
 ## Hostinger Coupon Codes for Feb 2026
 
-This section lists the latest Hostinger discount codes, deals, and promotional offers in 2026 for all the pricing plans. Where the long-term plans, like 12–48 months has more discounts and benefits. Checkout the ongoing Hostinger discount coupons and deals listed below.
+This section lists the latest Hostinger discount codes, deals, and promotional offers in 2026 for all the pricing plans. Where the long-term plans, like 12–48 months, have more discounts and benefits. Check out the ongoing Hostinger discount coupons and deals listed below.
 
 ---
 
