@@ -15,7 +15,7 @@ Let’s explore the top Hostinger offers together.
 
 ---
 
-## Hostinger Coupon Codes for Feb 2026
+## Hostinger Coupon Codes for April 2026
 
 This section lists the latest Hostinger discount codes, deals, and promotional offers in 2026 for all the pricing plans. Where the long-term plans, like 12–48 months, have more discounts and benefits. Check out the ongoing Hostinger discount coupons and deals listed below.
 
@@ -273,7 +273,7 @@ Hostinger **[Upgrade & Renewal Coupons](https://hostinger.in?REFERRALCODE=WEBPRO
 
 ---
 
-## Hostinger Pricing Plans Overview (Feb 2026)
+## Hostinger Pricing Plans Overview (April 2026)
 Hostinger offers a **range of hosting plans** designed to fit different website needs, from simple personal sites to growing businesses and high-traffic projects. Here’s a **quick breakdown to help you understand** which plan makes the most sense for your goals:
 
 - **[Single Hosting](https://hostinger.in?REFERRALCODE=WEBPRO2025)** — Best for beginners and personal websites, this plan allows you to host one website and is ideal if you’re just getting started or launching a small project. 
