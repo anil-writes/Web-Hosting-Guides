@@ -6,7 +6,8 @@ In this article, we will break down **Hostinger offers** in a clear, friendly wa
 
 Let’s explore the top Hostinger offers together.
 
-[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
+[<img width="560" height="132" alt="Claim Hostinger Coupon Code" src="https://github.com/user-attachments/assets/3bc101f1-4dbe-4fae-b9aa-d30f708e3fdf" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
+
 
 ---
 
