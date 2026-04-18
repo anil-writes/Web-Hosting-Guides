@@ -314,7 +314,7 @@ Hostinger packs its hosting plans with practical features that make launching an
 
 <p align="center">
   <a href="https://hostinger.in?REFERRALCODE=WEBPRO2025">
-    <img width="200" alt="Claim Hostinger Coupon Code" src="https://github.com/user-attachments/assets/3bc101f1-4dbe-4fae-b9aa-d30f708e3fdf" />
+    <img width="200" alt="Sign Up For Hostinger Now" src="https://github.com/user-attachments/assets/c77ade4c-896b-4e46-b0b9-fd912bb1fc74" />
   </a>
 </p>
 
@@ -340,7 +340,7 @@ Whether you’re starting your first site or upgrading an existing one, these de
 
 <p align="center">
   <a href="https://hostinger.in?REFERRALCODE=WEBPRO2025">
-    <img width="200" alt="Claim Hostinger Coupon Code" src="https://github.com/user-attachments/assets/3bc101f1-4dbe-4fae-b9aa-d30f708e3fdf" />
+    <img width="200" alt="Sign Up For Hostinger Now" src="https://github.com/user-attachments/assets/c77ade4c-896b-4e46-b0b9-fd912bb1fc74" />
   </a>
 </p>
 
