@@ -63,7 +63,7 @@ If you’re starting a blog or business with WordPress, use this **[Hostinger di
 
 ### Hostinger Promo Code: 50% Off VPS Hosting
 
-This Hostinger promo code is best for developers or sites that need more control, where Hostinger’s **VPS hosting** offers you **[up to 50% off](https://hostinger.in?REFERRALCODE=WEBPRO2025)**, depending on your selected plan and term length. This deal won't last forever. Tap below to lock in your VPS savings.
+This Hostinger promo code is best for developers or sites that need more control, where Hostinger’s **VPS hosting** offers you **[up to 50% off](https://hostinger.in?REFERRALCODE=WEBPRO2025)**, depending on your selected plan and term length. This deal won't last forever. Tap the link below to lock in your VPS savings.
 
 #### VPS gives you:
 - Root access
