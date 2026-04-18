@@ -12,7 +12,6 @@ Let’s explore the top Hostinger offers together.
   </a>
 </p>
 
-> [!IMPORTANT]
 > **🛡️ Why Trust This Guide?**
 >
 > Unlike generic coupon sites, we manually test these Hostinger promo codes every week. As of April 2026, all links are verified to auto-apply the maximum possible discount at checkout. No fake codes, no expired offers.
