@@ -1,6 +1,6 @@
 # Hostinger Coupon Codes Verified: Up to 88% OFF (April 2026)
 
-If you’re planning to launch a website, blog, portfolio, or online store in 2026, this guide walks you through the real, working **[Hostinger coupon codes](https://hostinger.in?REFERRALCODE=WEBPRO2025)** and deals that help you **save up to 85%** or more on hosting plans.
+If you’re planning to launch a website, blog, portfolio, or online store in 2026, this guide walks you through the real, working **[Hostinger coupon codes](https://hostinger.in?REFERRALCODE=WEBPRO2025)** and deals that help you **save up to 88%** or more on hosting plans.
 
 In this article, we will break down **Hostinger offers** in a clear, friendly way so you see exactly what you get, how much you save, and how to claim each and every deal and discount, including **free perks like a domain and SSL**.
 
