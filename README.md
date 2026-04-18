@@ -225,9 +225,6 @@ That’s it—no complicated steps or hidden conditions. Your discounted price w
 
 > **💡 Pro Tip:** Your purchase is completely risk-free. All Hostinger plans come with a standard 30-day money-back guarantee, so you can claim your discount today and test their services with zero financial risk.
 
-> [!TIP]
-> **💡 Pro Tip:** Your purchase is completely risk-free. All Hostinger plans come with a standard 30-day money-back guarantee, so you can claim your discount today and test their services with zero financial risk.
-
 ---
 
 ## Other Hostinger Discount Codes & Promotions (2026)
