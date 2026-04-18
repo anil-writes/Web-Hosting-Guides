@@ -276,14 +276,19 @@ Hostinger **[Upgrade & Renewal Coupons](https://hostinger.in?REFERRALCODE=WEBPRO
 
 ---
 
-## Hostinger Pricing Plans Overview (April 2026)
-Hostinger offers a **range of hosting plans** designed to fit different website needs, from simple personal sites to growing businesses and high-traffic projects. Here’s a **quick breakdown to help you understand** which plan makes the most sense for your goals:
+## Hostinger Pricing Plans (with Discount) Overview (April 2026)
 
-- **[Single Hosting](https://hostinger.in?REFERRALCODE=WEBPRO2025)** — Best for beginners and personal websites, this plan allows you to host one website and is ideal if you’re just getting started or launching a small project. 
-- **[Premium Hosting](https://hostinger.in?REFERRALCODE=WEBPRO2025)** — A step up with more storage, better speed, and support for multiple websites, making it a solid choice for bloggers and small businesses.
-- **[Business Hosting](https://hostinger.in?REFERRALCODE=WEBPRO2025)** — Built for performance, this plan offers advanced resources and enhanced reliability, suitable for growing websites that need faster load times and better stability.
-- **[VPS & Cloud Hosting](https://hostinger.in?REFERRALCODE=WEBPRO2025)** — Designed for developers and high-traffic sites, these plans provide dedicated resources, greater control, and scalability for demanding projects. 
-- **[Managed WordPress Hosting](https://hostinger.in?REFERRALCODE=WEBPRO2025)** — Fully optimized for WordPress, this option includes performance tuning, security features, and automatic updates for a smoother, hands-off experience.
+Hostinger offers a range of hosting plans designed to fit different website needs, from simple personal sites to growing businesses and high-traffic projects. Here’s a quick breakdown to help you understand which plan makes the most sense for your goals:
+
+| Plan Name | Best For | Standard Price | Discounted Price |
+| :--- | :--- | :--- | :--- |
+| **Single Hosting** | Beginners and personal websites (1 website) | ₹399/mo | [₹69/mo](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
+| **Premium Hosting** | Bloggers and small businesses (Multiple websites) | ₹599/mo | [₹149/mo](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
+| **Business Hosting** | Growing websites needing advanced performance | ₹699/mo | [₹249/mo](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
+| **VPS & Cloud** | Developers and high-traffic demanding projects | ₹1,699/mo | [₹599/mo](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
+| **Managed WP** | Hands-off, fully optimized WordPress experience | Varies | [Check Offers](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
+
+*Note: The discounted prices reflect the maximum savings usually available on 48-month plans.*
 
 Each plan is competitively priced, and when combined with active Hostinger coupon codes, you can access premium features at a significantly lower cost. Choosing the right plan upfront helps you avoid unnecessary upgrades later and ensures your website runs smoothly from day one.
 
