@@ -123,7 +123,7 @@ Perfect when your traffic grows beyond shared hosting limits.
 
 ### Hostinger Coupon Codes 2026: 30% Off Managed Cloud Hosting
 
-This deal is ideal for resource-heavy sites. With this Hostinger coupon, you will **[get 30% off on selected managed cloud hosting plans](https://devgraphiq.com/hostinger-recommends)**. Get this offer now by clicking the “Claim Now” button below.
+This deal is ideal for resource-heavy sites. With this Hostinger coupon, you will **[get 30% off](https://devgraphiq.com/hostinger-recommends)** on selected managed cloud hosting plans. Get this offer now by clicking the “Claim Now” button below.
 
 <p align="center">
   <a href="https://devgraphiq.com/hostinger-recommends">
