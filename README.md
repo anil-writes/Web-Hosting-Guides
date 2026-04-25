@@ -84,7 +84,7 @@ This Hostinger promo code is best for developers or sites that need more control
 
 ### 67% Off Hostinger Agency Hosting Plans (During Sale)
 
-Use this **[https://devgraphiq.com/hostinger-recommends)** to manage multiple websites or an agency and save **up to 67% off** Hostinger’s agency hosting plans. Claim your discount today by clicking the “Claim Now” button below before the offer expires.
+Use this **[Discount Coupon](https://devgraphiq.com/hostinger-recommends)** to manage multiple websites or an agency and save **up to 67% off** Hostinger’s agency hosting plans. Claim your discount today by clicking the “Claim Now” button below before the offer expires.
 
 #### These plans include:
 - More storage
