@@ -285,7 +285,7 @@ Hostinger offers a range of hosting plans designed to fit different website need
 | :--- | :--- | :--- | :--- |
 | **Single Hosting** | Beginners and personal websites (1 website) | ₹399/mo | [₹69/mo](https://devgraphiq.com/hostinger-recommends) |
 | **Premium Hosting** | Bloggers and small businesses (Multiple websites) | ₹599/mo | [₹149/mo](https://devgraphiq.com/hostinger-recommends) |
-| **Business Hosting** | Growing websites needing advanced performance | ₹699/mo | [₹249/mo](https://devgraphiq.com/hostinger-recommends |
+| **Business Hosting** | Growing websites needing advanced performance | ₹699/mo | [₹249/mo](https://devgraphiq.com/hostinger-recommends) |
 | **VPS & Cloud** | Developers and high-traffic demanding projects | ₹1,699/mo | [₹599/mo](https://devgraphiq.com/hostinger-recommends) |
 | **Managed WP** | Hands-off, fully optimized WordPress experience | Varies | [Check Offers](https://devgraphiq.com/hostinger-recommends) |
 
