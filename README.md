@@ -283,11 +283,11 @@ Hostinger offers a range of hosting plans designed to fit different website need
 
 | Plan Name | Best For | Standard Price | Discounted Price |
 | :--- | :--- | :--- | :--- |
-| **Single Hosting** | Beginners and personal websites (1 website) | ₹399/mo | [₹69/mo](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
-| **Premium Hosting** | Bloggers and small businesses (Multiple websites) | ₹599/mo | [₹149/mo](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
-| **Business Hosting** | Growing websites needing advanced performance | ₹699/mo | [₹249/mo](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
-| **VPS & Cloud** | Developers and high-traffic demanding projects | ₹1,699/mo | [₹599/mo](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
-| **Managed WP** | Hands-off, fully optimized WordPress experience | Varies | [Check Offers](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
+| **Single Hosting** | Beginners and personal websites (1 website) | ₹399/mo | [₹69/mo](https://devgraphiq.com/hostinger-recommends) |
+| **Premium Hosting** | Bloggers and small businesses (Multiple websites) | ₹599/mo | [₹149/mo](https://devgraphiq.com/hostinger-recommends) |
+| **Business Hosting** | Growing websites needing advanced performance | ₹699/mo | [₹249/mo](https://devgraphiq.com/hostinger-recommends |
+| **VPS & Cloud** | Developers and high-traffic demanding projects | ₹1,699/mo | [₹599/mo](https://devgraphiq.com/hostinger-recommends) |
+| **Managed WP** | Hands-off, fully optimized WordPress experience | Varies | [Check Offers](https://devgraphiq.com/hostinger-recommends) |
 
 
 > **📌 Important Note on Renewal Rates:** > 
