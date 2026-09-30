@@ -7,7 +7,7 @@
 
 Looking for a **working Hostinger coupon code** to save money on a new hosting plan or renew your existing Hostinger hosting or domain? You’re in the right place.
 
-Get up to **[88% off Hostinger discount](https://devgraphiq.com/hostinger_recommends)** through our recommended offer and unlock valuable extras such as a **free domain**, free SSL certificate, and reliable managed hosting.
+Get up to **[88% off Hostinger discount](https://devgraphiq.com/hostinger_recommends)** through our recommended offers in this page and unlock valuable extras such as a **free domain**, free SSL certificate, and reliable managed hosting.
 
 <p align="center">
   <a href="https://devgraphiq.com/hostinger_recommends">
