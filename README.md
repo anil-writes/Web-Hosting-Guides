@@ -17,7 +17,7 @@ Get up to **[88% off Hostinger discount](https://devgraphiq.com/hostinger_recomm
 
 ---
 
-## Hostinger Coupon Codes for Oct 2026
+## Hostinger Coupon Codes for October 2026
 
 ### Hostinger 85% Off Coupon Code + Up to 3 Months Extra
 
