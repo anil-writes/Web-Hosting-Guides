@@ -2,9 +2,6 @@
 
 <img width="1354" height="470" alt="Hostinger Coupon Code" src="https://github.com/user-attachments/assets/cc1466e4-ee2a-4b8e-bb3c-ac454d081418" />
 
-
-
-
 Looking for a **working Hostinger coupon code** to save money on a new hosting plan or renew your existing Hostinger hosting or domain? You’re in the right place.
 
 Get up to **[88% off Hostinger discount](https://devgraphiq.com/hostinger_recommends)** through our recommended offers in this page and unlock valuable extras such as a **free domain**, free SSL certificate, and reliable managed hosting.
