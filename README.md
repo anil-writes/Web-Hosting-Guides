@@ -17,7 +17,7 @@ Get up to **[88% off Hostinger discount](https://devgraphiq.com/hostinger_recomm
 
 ---
 
-## Hostinger Coupon Codes for Sep 2026
+## Hostinger Coupon Codes for Oct 2026
 
 ### Hostinger 85% Off Coupon Code + Up to 3 Months Extra
 
@@ -237,7 +237,7 @@ Hostinger **[Upgrade & Renewal Coupons](https://devgraphiq.com/hostinger_recomme
 
 ---
 
-## Hostinger Pricing Plans (with Discount) Overview (Sep 2026)
+## Hostinger Pricing Plans (with Discount) Overview (Oct 2026)
 
 Hostinger offers a range of hosting plans designed to fit different website needs, from simple personal sites to growing businesses and high-traffic projects. Here’s a quick breakdown to help you understand which plan makes the most sense for your goals:
 
