@@ -1,6 +1,6 @@
 # Hostinger Coupon Code 2026: Save on Hosting, Domains & Renewals
 
-<img width="1354" height="470" alt="Hostinger Coupon Code" src="https://github.com/user-attachments/assets/cc1466e4-ee2a-4b8e-bb3c-ac454d081418" 
+<img width="1920" height="556" alt="Hostinger Coupon Codes" src="https://github.com/user-attachments/assets/540016da-a3f2-4819-b4f5-b4e7921cb18a" 
   />
 
 If you're comparing a **Hostinger coupon code for 2026**, looking for a **Hostinger discount** and deals, or trying to find a **Hostinger domain renewal coupon code**, You're at the right place.
