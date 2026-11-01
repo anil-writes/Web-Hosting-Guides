@@ -3,10 +3,8 @@
 <img width="1920" height="556" alt="Hostinger Coupon Codes" src="https://github.com/user-attachments/assets/540016da-a3f2-4819-b4f5-b4e7921cb18a" 
   />
 
-If you're comparing a **Hostinger coupon code for 2026**, looking for a **Hostinger discount** and deals, or trying to find a **Hostinger domain renewal coupon code**, You're at the right place.
-
-
-Get up to **[83% off Hostinger discount](https://www.hostinger.com/in?REFERRALCODE=Devgraphiq)** through our recommended offers in this page and unlock valuable extras such as a **free domain**, free SSL certificate, and reliable managed hosting.
+Searching for a Hostinger coupon code for 2026, a current Hostinger deal, or a domain renewal discount? 
+You’re in the right place. Use the offers on this page to get up to [**83% off Hostinger**](https://www.hostinger.com/in?REFERRALCODE=Devgraphiq), plus extras like a free domain, a free SSL certificate, and reliable managed hosting.
 
 <p align="center">
  <a href="https://www.hostinger.com/in?REFERRALCODE=Devgraphiq">
